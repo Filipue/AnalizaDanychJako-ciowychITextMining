@@ -1,0 +1,1 @@
+# AnalizaDanychJako-ciowychITextMining
